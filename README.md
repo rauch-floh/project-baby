@@ -9,7 +9,7 @@ Willkommen bei unserem Projekt Baby! :baby: Wir freuen uns, dass du mit uns mitf
 Wir haben keine klassische Babyliste erstellt, da wir selbst noch gar nicht so konkrete Vorstellungen haben und 
 zumindest einer von uns will auch nicht unbedingt Amazon dafür nutzen :wink: 
 
-### Unsere Grundüberlegungen
+## Unsere Grundüberlegungen
 
 <dl>
   <dt>Minimalistisch</dt>
@@ -19,6 +19,14 @@ zumindest einer von uns will auch nicht unbedingt Amazon dafür nutzen :wink:
   <dt>Gesund / Unbedenklich</dt>
   <dd>Geprüfte Materialien, die schadstofffrei und für Babies geeignet sind.</dd>
 </dl>
+
+## Du willst uns eine Freude machen?
+
+Wir versuchen hier einen Überblick zu geben, was wir vor allem nicht brauchen und was nie verkehrt ist. Contributions im Repository sind erlaubt ;)
+Im Zweifel könnt ihr gerne auch bei Lisi (elisabeth[punkt]floh[at]gmail[punkt]com) nachfragen um
+- zu erfahren, ob wir etwas schon haben
+- hier anonyme Änderungen erfassen zu lassen
+- ihre Einschätzung zu Ideen zu bekommen 
 
 ### Was wir nicht brauchen
 
