@@ -37,4 +37,6 @@ zumindest einer von uns will auch nicht unbedingt Amazon dafür nutzen :wink:
 
 Wir haben ein paar Beispiele angefügt, damit ihr mal seht was uns vom Stil her gefällt. Das Motto Wald & Wiese, Tiere und nicht überwiegend rosa/blau oder gelb.
 
+<img src="./20230131_183812.jpg" width="250"/>
+
 ...und natürlich freuen wir uns auch über Tipps & Tricks, Hinweise, was wir vergessen haben, und jedes Geschenk, das du dir überlegt hast :heart:
