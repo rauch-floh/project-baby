@@ -22,9 +22,10 @@ zumindest einer von uns will auch nicht unbedingt Amazon dafür nutzen :wink:
 
 ### Was wir nicht brauchen
 
+- Windeln in Größe 1
+- Ratgeber/Bücher für (werdende) Eltern
 - Schnuller / Schnullerketten
-- Windeln Größe 1
-- Bücher für das 1. Jahr mit Baby
+- Pflegeprodukte
 
 ### Worüber wir uns sicher freuen
 
@@ -32,4 +33,8 @@ zumindest einer von uns will auch nicht unbedingt Amazon dafür nutzen :wink:
 - [ ] Kleidung in größeren Größen, damit wir sie dann auch wirklich nutzen können
 - [ ] Gutscheine für regionale Shops
 
-und natürlich freuen wir uns auch über Tipps & Tricks, Hinweise, was wir vergessen haben, und jedes Geschenk, das du dir überlegt hast :heart:
+### Stil
+
+Wir haben ein paar Beispiele angefügt, damit ihr mal seht was uns vom Stil her gefällt. Das Motto Wald & Wiese, Tiere und nicht überwiegend rosa/blau oder gelb.
+
+...und natürlich freuen wir uns auch über Tipps & Tricks, Hinweise, was wir vergessen haben, und jedes Geschenk, das du dir überlegt hast :heart:
