@@ -25,13 +25,15 @@ zumindest einer von uns will auch nicht unbedingt Amazon dafür nutzen :wink:
 - Windeln in Größe 1
 - Ratgeber/Bücher für (werdende) Eltern
 - Schnuller / Schnullerketten
-- Pflegeprodukte
+- Pflegeprodukte für Baby & Mama
 
 ### Worüber wir uns sicher freuen
 
 - [ ] Bücher zum Anschauen & Vorlesen
-- [ ] Kleidung in größeren Größen, damit wir sie dann auch wirklich nutzen können
+- [ ] Kleidung in späteren Größen (68+), damit wir sie dann auch wirklich nutzen können
 - [ ] Gutscheine für regionale Shops
+
+...und natürlich freuen wir uns auch über Tipps & Tricks, Hinweise, was wir vergessen haben, und jedes Geschenk, das du dir überlegt hast :heart:
 
 ### Stil
 
@@ -39,4 +41,8 @@ Wir haben ein paar Beispiele angefügt, damit ihr mal seht was uns vom Stil her 
 
 <img src="./20230131_183812.jpg" width="250"/>
 
-...und natürlich freuen wir uns auch über Tipps & Tricks, Hinweise, was wir vergessen haben, und jedes Geschenk, das du dir überlegt hast :heart:
+### Baby-/Kinderbücher
+
+Folgende Bücher haben wir bereits in unserer Sammlung:
+
+- Der kleine Siebenschäfer: Wie geht der Schluckauf wieder weg?
