@@ -38,7 +38,7 @@ Im Zweifel könnt ihr gerne auch bei Lisi (elisabeth[punkt]floh[at]gmail[punkt]c
 ### Worüber wir uns sicher freuen
 
 - [ ] Bücher zum Anschauen & Vorlesen
-- [ ] Kleidung in späteren Größen, damit wir sie dann auch wirklich nutzen können (68+, angeblich passen 74 und 80 am längsetn)
+- [ ] Kleidung in späteren Größen, damit wir sie dann auch wirklich nutzen können (68+, angeblich passen 74 und 80 am längsten)
 - [ ] Gutscheine für regionale Shops
 
 ...und natürlich freuen wir uns auch über Tipps & Tricks, Hinweise, was wir vergessen haben, und jedes Geschenk, das du dir überlegt hast :heart:
