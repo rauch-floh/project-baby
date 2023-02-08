@@ -44,7 +44,7 @@ Im Zweifel könnt ihr gerne auch bei Lisi (elisabeth[punkt]floh[at]gmail[punkt]c
 
 ...und natürlich freuen wir uns auch über Tipps & Tricks, Hinweise, was wir vergessen haben, und jedes Geschenk, das du dir überlegt hast :heart:
 
-Wenn wir im Laufe der Wochen noch konkreteres finden, was wir brauchen oder uns wünschen, werden wir es auch noch hier ergänzen.
+Wenn wir im Laufe der Wochen noch Konkreteres finden, was wir brauchen oder uns wünschen, werden wir es auch noch hier ergänzen.
 
 ## Stil
 
@@ -52,12 +52,13 @@ Wir lassen uns vom Geschlecht unseres Babies überraschen und wollen auch genere
 
 Allgemein werden wir daher nicht überwiegend rosa/blau verwenden, und aufgrund persönlicher Vorliebe auch weniger gelb. Generell mögen wir es eher natürlich / freundlich und haben uns schon einiges im Bereich "Wald & Wiese" bzw. "Tiere" gefunden, was uns gefällt. Unten findet ihr auch ein paar Bilder was wir schon (geschenkt bekommen) haben - so könnt ihr euch auch einen Eindruck machen. ;)
 
-Wie viele starten wir mit dem Vorsatz wenig Plastikspielzeug (vor allem anfangs nichts mit Batterien / Soundeffekten) und mehr Holz und werden sehen, wann der der Vorsatz ad acta gelegt wird. 
+Wie viele starten wir mit dem Vorsatz wenig Plastikspielzeug (vor allem anfangs nichts mit Batterien / Soundeffekten) und mehr Holz und werden sehen, wann der Vorsatz dann ad acta gelegt wird. 
 
 ### Was wir schon besitzen
-<img src="./images/PXL_20230207_193905987.jpg" width="250"/> <img src="./images/PXL_20230207_193938470.jpg" width="250"/> <img src="./images/PXL_20230207_193919751.jpg" width="250"/>
 
 #### Kleidung
+
+<img src="./images/PXL_20230207_193905987.jpg" width="250"/> <img src="./images/PXL_20230207_193938470.jpg" width="250"/> <img src="./images/PXL_20230207_193919751.jpg" width="250"/>
 
 #### Spielzeug
 <img src="./images/20230131_183812.jpg" width="250"/>
