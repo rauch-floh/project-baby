@@ -48,17 +48,25 @@ Wenn wir im Laufe der Wochen noch konkreteres finden, was wir brauchen oder uns 
 
 ## Stil
 
-Wir lassen uns vom Geschlecht unseres Babies überraschen und wollen auch generell versuchen Geschlechtersterotypen zu vermeiden. #farbensindfueralleda
+Wir lassen uns vom Geschlecht unseres Babies überraschen und wollen auch generell versuchen, Geschlechtersterotypen zu vermeiden. #farbensindfueralleda
 
 Allgemein werden wir daher nicht überwiegend rosa/blau verwenden, und aufgrund persönlicher Vorliebe auch weniger gelb. Generell mögen wir es eher natürlich / freundlich und haben uns schon einiges im Bereich "Wald & Wiese" bzw. "Tiere" gefunden, was uns gefällt. Unten findet ihr auch ein paar Bilder was wir schon (geschenkt bekommen) haben - so könnt ihr euch auch einen Eindruck machen. ;)
 
-## Was wir schon besitzen
+Wie viele starten wir mit dem Vorsatz wenig Plastikspielzeug (vor allem anfangs nichts mit Batterien / Soundeffekten) und mehr Holz und werden sehen, wann der der Vorsatz ad acta gelegt wird. 
 
-### Allgemein
+### Was wir schon besitzen
+<img src="./images/PXL_20230207_193905987.jpg" width="250"/> <img src="./images/PXL_20230207_193938470.jpg" width="250"/> <img src="./images/PXL_20230207_193919751.jpg" width="250"/>
 
+#### Kleidung
+
+#### Spielzeug
 <img src="./images/20230131_183812.jpg" width="250"/>
 
-### Baby-/Kinderbücher
+#### Sonstiges
+<img src="./images/PXL_20230208_153240314.jpg" width="250"/>
+
+
+#### Baby-/Kinderbücher
 
 Folgende Bücher haben wir bereits in unserer Sammlung:
 
