@@ -15,7 +15,7 @@ zumindest einer von uns auch nicht Amazon dafür nutzen will). :wink:
   <dt>Minimalistisch</dt>
   <dd>Mehr wird's sowieso immer von alleine. Und wir haben dankenswerter Freunde, die uns schon viel leihen und zur Verfügung stellen. :heart_eyes: Danke!</dd>
   <dt>Nachhaltig & Langlebig</dt>
-  <dd>Kleidung und Möbel, die mitwachsen oder erweiterbar sind. Materialien/Produktionswege möglichst ökologische mit fairen Arbeitsbedingungen.</dd>
+  <dd>Kleidung und Möbel, die mitwachsen oder erweiterbar sind. Materialien/Produktionswege möglichst ökologisch mit fairen Arbeitsbedingungen.</dd>
   <dt>Gesund / Unbedenklich</dt>
   <dd>Geprüfte Materialien, die schadstofffrei und für Babies geeignet sind.</dd>
 </dl>
@@ -48,7 +48,7 @@ Wenn wir im Laufe der Wochen noch konkreteres finden, was wir brauchen oder uns 
 
 ## Stil
 
-Wir lassen uns vom Geschlecht unseres Babies überraschen und wollen auch generell versuchen Geschlechtersterotypen zu vermeiden. #farbensindfueralle da
+Wir lassen uns vom Geschlecht unseres Babies überraschen und wollen auch generell versuchen Geschlechtersterotypen zu vermeiden. #farbensindfueralleda
 
 Allgemein werden wir daher nicht überwiegend rosa/blau verwenden, und aufgrund persönlicher Vorliebe auch weniger gelb. Generell mögen wir es eher natürlich / freundlich und haben uns schon einiges im Bereich "Wald & Wiese" bzw. "Tiere" gefunden, was uns gefällt. Unten findet ihr auch ein paar Bilder was wir schon (geschenkt bekommen) haben - so könnt ihr euch auch einen Eindruck machen. ;)
 
