@@ -56,7 +56,7 @@ Allgemein werden wir daher nicht überwiegend rosa/blau verwenden, und aufgrund 
 
 ### Allgemein
 
-<img src="./20230131_183812.jpg" width="250"/>
+<img src="./images/20230131_183812.jpg" width="250"/>
 
 ### Baby-/Kinderbücher
 
