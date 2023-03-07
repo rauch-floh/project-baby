@@ -57,7 +57,7 @@ Wie viele starten wir mit dem Vorsatz wenig Plastikspielzeug (vor allem anfangs 
 
 #### Kleidung
 
-<img src="./images/PXL_20230207_193905987.jpg" width="250"/> <img src="./images/PXL_20230207_193938470.jpg" width="250"/> <img src="./images/PXL_20230207_193919751.jpg" width="250"/>
+<img src="./images/PXL_20230207_193905987.jpg" width="250"/> <img src="./images/PXL_20230207_193938470.jpg" width="250"/> <img src="./images/PXL_20230207_193919751.jpg" width="250"/> <img src="./images/wollwalk.jpg" width="250"/> <img src="./images/schuhe.jpg" width="250"/>
 
 #### Spielzeug
 <img src="./images/20230131_183812.jpg" width="250"/>
