@@ -6,8 +6,7 @@
 
 Willkommen bei unserem Projekt Baby! :baby: Wir freuen uns, dass du mit uns mitfieberst!
 
-Wir haben keine klassische Babyliste erstellt, da wir selbst noch gar nicht so konkrete Vorstellungen haben, mit einem eher minimalen Set an Dingen starten (und 
-zumindest einer von uns auch nicht Amazon dafür nutzen will). :wink: 
+Wir haben keine klassische Babyliste erstellt, da wir selbst noch gar nicht so konkrete Vorstellungen haben und mit einem eher minimalen Set an Dingen starten möchten. Deshalb haben wir uns statt einer klassischen Wunschliste bei Amazon für diese Übersicht entschieden. :wink: 
 
 ## Unsere Grundüberlegungen
 
@@ -48,7 +47,7 @@ Wenn wir im Laufe der Wochen noch Konkreteres finden, was wir brauchen oder uns 
 
 ## Stil
 
-Wir lassen uns vom Geschlecht unseres Babies überraschen und wollen auch generell versuchen, Geschlechtersterotypen zu vermeiden. #farbensindfueralleda
+Wir lassen uns vom Geschlecht unseres Babies überraschen und wollen auch generell versuchen, Geschlechterstereotypen zu vermeiden. #farbensindfueralleda
 
 Allgemein werden wir daher nicht überwiegend rosa/blau verwenden, und aufgrund persönlicher Vorliebe auch weniger gelb. Generell mögen wir es eher natürlich / freundlich und haben uns schon einiges im Bereich "Wald & Wiese" bzw. "Tiere" gefunden, was uns gefällt. Unten findet ihr auch ein paar Bilder was wir schon (geschenkt bekommen) haben - so könnt ihr euch auch einen Eindruck machen. ;)
 
