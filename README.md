@@ -41,7 +41,7 @@ Im Zweifel könnt ihr gerne auch bei Lisi (elisabeth[punkt]floh[at]gmail[punkt]c
 - [ ] Kleidung in späteren Größen, damit wir sie dann auch wirklich nutzen können (>68, angeblich passen 74 und 80 am längsten)
 - [ ] Gutscheine für regionale, kleine Shops
 - [ ] Gutscheine für die üblichen Notwendigkeiten (dm oder ähnliches)
-- [ ] [Gutschein Trageberatung](https://www.xn--babysphre-12a.at/home/gutscheine-bestellen/) (werden wir in den ersten 2 Wochen nach Geburt machen)
+- [x] [Gutschein Trageberatung](https://www.xn--babysphre-12a.at/home/gutscheine-bestellen/) (werden wir in den ersten 2 Wochen nach Geburt machen)
 
 ...und natürlich freuen wir uns auch über Tipps & Tricks, Hinweise, was wir vergessen haben, und jedes Geschenk, das du dir überlegt hast :heart:
 
